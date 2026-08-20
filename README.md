@@ -1,16 +1,16 @@
-## Hi there 👋
+hewwo
 
-<!--
-**Mrvlspider/Mrvlspider** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="570" height="570" alt="image" src="https://github.com/user-attachments/assets/5d6fbfa6-b859-46f4-a0a0-cedb1d30c247" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+: ₍⁾ 21!  ⤻ . 🏳️‍🌈. she/her . 
+
+
+
+⚈     wlw  . ↝ les/bi! . ⇶   ✰ ≺Taken≻
+
+
+
+
+⋱ fluttershy / rainbow dash in real life . ⋰ ¬ ♡ˆ °˚.        
