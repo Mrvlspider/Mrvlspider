@@ -17,6 +17,4 @@ hewwo
 
 
 
-⤵︎
-
 << Autistic / adhd >>
