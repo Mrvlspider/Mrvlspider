@@ -4,7 +4,7 @@ hewwo
 
 
 
-: ₍⁾ 21!  ⤻ . 🏳️‍🌈. she/her . 
+: ₍⁾ 19+ int!  ⤻ . 🏳️‍🌈. she/her . 
 
 
 
@@ -13,4 +13,10 @@ hewwo
 
 
 
-⋱ fluttershy / rainbow dash in real life . ⋰ ¬ ♡ˆ °˚.        
+⋱ fluttershy in real life . ⋰ ¬ ♡ˆ °˚.        
+
+
+
+⤵︎
+
+<< Autistic / adhd >>
