@@ -18,3 +18,6 @@ hewwo
 
 
 << Autistic / adhd >>
+to lazy to edit my strawpge so. . .
+
+(DNI) - homo , kids , bullies , copiers/stealers , harmful , and etc ⋙
