@@ -8,7 +8,7 @@ hewwo
 
 
 
-⚈     wlw  . ↝ les/bi! . ⇶   ✰ ≺Taken≻
+⚈     wlw  . ↝ les/bi! . ⇶   ✰ ≺single≻
 
 
 
